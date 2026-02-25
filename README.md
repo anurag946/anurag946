@@ -49,7 +49,7 @@ Comparison of Fiction vs Non-Fiction average ratings.
 
 ## 📫 Connect With Me
 
-- LinkedIn: (linkedin.com/in/anurag-singh-tomar-a69532325)
+- LinkedIn: ([linkedin.com/in/anurag-singh-tomar-a69532325](https://www.linkedin.com/in/anurag-singh-tomar-a69532325?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3BncCyTphIR6a5aJ66EKmUEQ%3D%3D))
 - Email: anuragtomar259@gmail.com
 
 ---
